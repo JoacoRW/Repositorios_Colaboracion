@@ -1,1 +1,0 @@
-🔗 Nombre del Repo Participación en la planificación y documentación.
